@@ -1,2 +1,0 @@
-# fazanprinting.github.io
-blbalbaalbalbala
